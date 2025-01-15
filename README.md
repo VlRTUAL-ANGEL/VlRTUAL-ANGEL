@@ -2,7 +2,7 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/lc3veq.png"> </p>
-<p align="center"><img src="https://i.ibb.co/WxKkKD0/New-Project-ezgif-com-resize.gif">
+<p align="center"><img src="https://i.ibb.co/2ZX6JqN/New-Project1-ezgif-com-resize.gif">
 
 </p>
 
