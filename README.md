@@ -1,8 +1,8 @@
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/lc3veq.png">
-<img src="https://i.ibb.co/WxKkKD0/New-Project-ezgif-com-resize.gif">
+  <img src="https://files.catbox.moe/lc3veq.png"> </p>
+<p align="right"><img src="https://i.ibb.co/WxKkKD0/New-Project-ezgif-com-resize.gif">
 
 </p>
 
