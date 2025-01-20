@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif"> ${\textsf{\color{#e3e3e3} 𝐝𝐚𝐧𝐝𝐞 }}$ ノ ${\textsf{\color{#8a8a8a}𝐤𝐢𝐫𝐢}}$ ♱ ${\textsf{\color{#e3e3e3}𝐚𝐧𝐲 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬}}$ ♱ ${\textsf{\color{#8a8a8a}𝐬𝐢𝐠𝐧 𝐚𝐭𝐚}}$ <img src="https://i.postimg.cc/mD1c8dhF/mo38.gif">
+<p align="center"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif"> ${\textsf{\color{#e3e3e3} 𝐝𝐚𝐧𝐝𝐞 }}$ ノ ${\textsf{\color{#8a8a8a}𝐤𝐢𝐫𝐢}}$ ♱ ${\textsf{\color{#e3e3e3}𝐚𝐧𝐲 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬}}$ ♱ ${\textsf{\color{#8a8a8a}𝐬𝐢𝐠𝐧 𝐚𝐭𝐚}}$ ♱ ${\textsf{\color{#e3e3e3} 19 }}$<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif">
   <p align="center">${\textsf{\color{#8a8a8a}· · ────────────────────────────── ꒰ঌ·}}$ ${\textsf{\color{#cfcccc}✦}}$ ${\textsf{\color{#8a8a8a}·໒꒱ ────────────────────────────── · · }}$</p>
    <div id="header" align="center">
 <p align="center">
